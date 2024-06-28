@@ -1,0 +1,1 @@
+cursed ya tvoi fanat
